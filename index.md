@@ -15,5 +15,5 @@ Things I wish to **learn**
 1. Baking
 2. Running _full_ marathons
 
-[Link] https://www.linkedin.com/in/nishantsingh7/
+https://www.linkedin.com/in/nishantsingh7/
 
